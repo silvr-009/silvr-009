@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @silvr-009
+- 👀 I’m interested in aeronautical science
+- 🌱 I’m currently learning Quantum physics
+- 📫 How to reach me discord - silvr_009
+- 😄 Pronouns: he or him
+- ⚡ fact: iam highschooler
